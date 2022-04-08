@@ -1,0 +1,3 @@
+- Spice Gears Academy / SmartBee Team GitHub 
+- 8+ Team members 
+- 3yr Expirience
